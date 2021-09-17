@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FedExPipah
+- 👀 I’m interested in IxD
+- 🌱 I’m currently learning noting^^
+- 💞️ I’m looking to collaborate on a relationship 
+- 📫 Never reach me^^
